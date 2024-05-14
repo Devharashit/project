@@ -1,2 +1,2 @@
 # 7up-project
-hey i'm harashit showing ypu my work.
+hey i'm harashit showing you my work.
